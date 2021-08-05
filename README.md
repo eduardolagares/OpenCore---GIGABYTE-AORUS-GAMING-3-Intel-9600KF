@@ -1,0 +1,1 @@
+# OpenCore---GIGABYTE-AORUS-GAMING-3-Intel-9600KF
